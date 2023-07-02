@@ -1,1 +1,1 @@
-# rsschool-cv
+https://mbahdanau.github.io/rsschool-cv/cv
